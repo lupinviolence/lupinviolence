@@ -17,7 +17,8 @@ You can call me <em>Toasty</em> or <strong>Shuji</strong>, as I use those most. 
   I use he/him and ey/em pronouns. I don't mind they/them but I don't prefer it.
 </p>
 <p align="center">
- When I have any sort of DNI on PT, c+h is still allowed! I don't bite. I'm afk/offtab often so you may whisper if you want to make sure I don't miss your message!
+ When I have any sort of DNI on PT, c+h is still allowed! I don't bite. I'm afk/offtab often so you may whisper if you want to make sure I don't miss your message! I also take time to respond so responses will be slow
 </p>
-
-### 🩵 Links .
+<p align="center">
+I make sexual and suicide jokes so do tell me if you're uncomfortable so I will stop doing them around you. I don't mind any ships, as I don't see them very important when interacting. However, if you force your ship in my face, I will ask you to stop. I don't do RPs, please ask before you RP with me (unless you're my friend and it's a joke RP).
+</p>
